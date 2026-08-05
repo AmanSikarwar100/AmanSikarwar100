@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **thakursahabasgs100@gmail.com**
 
-- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1oS88tcGGirD-p3gkTzbuk_YaEIqkWp2z/view?usp=sharing)
+- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1tkIqrQb9J3ABhYy_3sZPUJlxfWBH6JOo/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
